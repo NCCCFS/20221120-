@@ -1,1 +1,36 @@
+# 2022年主日信息
+# 主题：没有别的福音
+# 经文：加拉太书1：1-12
+# 讲员：侯弟兄
+<audio controls src="./没有别的福音.mp3"></audio>
+![image](https://user-images.githubusercontent.com/91267933/202885386-e973be4f-d383-439c-b9c8-fbfa59fa860d.png)
+![image](https://user-images.githubusercontent.com/91267933/202885396-adf7c52a-7a4c-40fe-b7c1-3ddfa087f785.png)
+![image](https://user-images.githubusercontent.com/91267933/202885401-b0220c77-b0af-4800-ba06-f6177a2d778b.png)
+![image](https://user-images.githubusercontent.com/91267933/202885403-2bf6d5d1-c810-4fe6-a8f8-059ee9c9c14a.png)
+![image](https://user-images.githubusercontent.com/91267933/202885410-1a0fc3c3-2c14-4eab-86e4-1d5c33a61a46.png)
+![image](https://user-images.githubusercontent.com/91267933/202885415-54b014a8-e5df-4cb6-a98f-3e5b19acec5e.png)
+![image](https://user-images.githubusercontent.com/91267933/202885417-f1ea38aa-5aae-4f69-ad6b-00e650730a48.png)
+![image](https://user-images.githubusercontent.com/91267933/202885420-a2e65cf7-0ff6-4c27-b9a1-cd774b106449.png)
+![image](https://user-images.githubusercontent.com/91267933/202885423-3fecb887-2a89-48fa-9855-725fcbbfb176.png)
+![image](https://user-images.githubusercontent.com/91267933/202885425-49deadee-0463-44f6-b59f-895aded3a244.png)
+![image](https://user-images.githubusercontent.com/91267933/202885427-a9f04ac8-83a8-4f81-b4ea-8eee1ec6b093.png)
+![image](https://user-images.githubusercontent.com/91267933/202885429-dd4d784b-aab0-4be0-b1d1-1a1acffc1a75.png)
+![image](https://user-images.githubusercontent.com/91267933/202885430-66e17eed-ed5b-46ae-b5c3-583451794d00.png)
+![image](https://user-images.githubusercontent.com/91267933/202885432-2ec8326a-f102-4fd8-9fe3-0522329b0a1b.png)
+![image](https://user-images.githubusercontent.com/91267933/202885435-f94b9568-39bb-4312-9d2e-ee0e54e7e77a.png)
+![image](https://user-images.githubusercontent.com/91267933/202885439-16f58a39-eb61-4747-9afc-c0edb5fea707.png)
+![image](https://user-images.githubusercontent.com/91267933/202885442-813da85c-d1dc-42c8-84f3-09ae930d9c0e.png)
+![image](https://user-images.githubusercontent.com/91267933/202885445-d3cf7845-e21d-4496-b03f-3e86bfba23c7.png)
+![image](https://user-images.githubusercontent.com/91267933/202885447-9e06c6bd-bbae-4ab5-bc51-b617327a3101.png)
+![image](https://user-images.githubusercontent.com/91267933/202885452-46ae959a-cb36-4cda-955b-16f3cc3403f5.png)
+![image](https://user-images.githubusercontent.com/91267933/202885454-00690617-1c6c-4919-abb0-5fa5ed670f63.png)
+![image](https://user-images.githubusercontent.com/91267933/202885456-41402a06-d2a7-4934-967a-8abda8cb6ce1.png)
+![image](https://user-images.githubusercontent.com/91267933/202885459-8e9e6db1-6f8e-4bf9-998c-a636a47b7895.png)
+![image](https://user-images.githubusercontent.com/91267933/202885462-95ba3127-a914-4f3a-a619-4ad548e55de8.png)
+![image](https://user-images.githubusercontent.com/91267933/202885464-00f06e39-58bf-4ede-87ca-f3e4c7e02732.png)
+![image](https://user-images.githubusercontent.com/91267933/202885467-30db6d98-38a1-491c-90e2-13dd6d700fe4.png)
+![image](https://user-images.githubusercontent.com/91267933/202885471-fdb037df-01a1-418d-9f6d-378a9c559197.png)
+![image](https://user-images.githubusercontent.com/91267933/202885473-d7716ac9-5722-4b25-8e72-4a88f55d5052.png)
+![image](https://user-images.githubusercontent.com/91267933/202885475-f37ab636-c13a-40b0-b61b-059e4c6a2d72.png)
+![image](https://user-images.githubusercontent.com/91267933/202885480-ea86491b-f1e4-4b0a-9774-7a0e57b29344.png)
 
